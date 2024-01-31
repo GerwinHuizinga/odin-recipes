@@ -1,1 +1,1 @@
-Na het maken van de opdracht deze invullen als zelfreflectie
+Goed uitgezocht hoe de basis van HTML werkt. Alles ging goed en soepel.
